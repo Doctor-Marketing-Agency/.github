@@ -4,7 +4,7 @@ Being a great doctor is no longer enough to grow a successful practice. In today
 
 According to a study by Google, **77% of patients** search online for healthcare providers before booking an appointment. More importantly, **60% of patients** rely on online reviews when choosing a doctor. This means that if your practice isn’t showing up in search results or your online reputation is weak, you’re missing out on potential patients.  
 
-The healthcare market is oversaturated, and patients have more options than ever before. That’s why working with a doctor marketing agency is essential. A specialized doctor marketing agency understands the unique challenges of the healthcare industry, such as HIPAA compliance, patient trust, and local targeting. They create tailored strategies to help you attract new patients, improve patient retention, and grow your practice sustainably.  
+The healthcare market is oversaturated, and patients have more options than ever before. That’s why working with a [doctor marketing agency](https://www.intelliusmedical.com/) is essential. A specialized doctor marketing agency understands the unique challenges of the healthcare industry, such as HIPAA compliance, patient trust, and local targeting. They create tailored strategies to help you attract new patients, improve patient retention, and grow your practice sustainably.  
 
 In this article, we’ll explore why general marketing strategies don’t work for doctors, what makes a doctor marketing agency different, and how a tailored healthcare marketing strategy can help you get more patients.
 
